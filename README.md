@@ -6,8 +6,6 @@ I'm **AnonKryptiQuz**, a passionate hacker and cybersecurity enthusiast dedicate
 - **[GitHub Repository)](https://github.com/AnonKryptiQuz)**
 - **[X (formerly Twitter)](https://x.com/AnonKryptiQuz)**
 
-**Hack smart, stay ethical, and remain in the shadows.**
-
 ## **Author**
 
 **Created by:** [AnonKryptiQuz](https://AnonKryptiQuz.github.io/)
