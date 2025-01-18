@@ -6,6 +6,8 @@ As one with Anonymous, I explore the delicate balance of power in the digital do
 
 **We are Anonymous. We are Legion. We do not forgive. We do not forget. Expect us.**
 
+---
+
 ## Connect in the Shadows
 - **[Github Repository](https://github.com/AnonKryptiQuz)**
 - **[X (formerly Twitter)](https://x.com/AnonKryptiQuz)**
